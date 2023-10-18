@@ -25,4 +25,4 @@ Estou ansioso para contribuir para a comunidade de segurança da informação e 
 
 Seja bem-vindo ao meu perfil! Vamos crescer juntos no mundo da Tecnologia da Informação. 
 
-## LinkedIn []
+## [LinkedIn] (https://www.linkedin.com/in/reinaldo-rodrigues-59b083248/)
